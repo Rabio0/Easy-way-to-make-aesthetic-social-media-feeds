@@ -2,7 +2,7 @@
 <html lang="en">
 <body>
 
-<h1>11 Tips to Make Social Media Feeds Look Smooth and Cohesive</h1>
+<h1>11 Tips to Make Social Media Feeds Look Aesthetic and Cohesive</h1>
 
 <p>Creating a smooth and aesthetic social media feed is essential if you want your profile to stand out. A well-organized feed not only attracts followers but also makes your brand or personal account look professional. A cohesive feed means your photos and videos look like they belong together—whether it’s through color, style, or theme. Here are detailed tips to help you achieve a cohesive and aesthetic social media feed.</p>
 
